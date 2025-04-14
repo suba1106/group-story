@@ -1,1 +1,1 @@
-Once upon a time there was a fierce princess. 
+Once upon a time, there was a girl named Rapunzel who grew up in a tower, always being told the world was too much for her. But deep down, she knew there was more out there. So one day, she took a chance, left everything behind, and followed the lights she couldn’t stop thinking about. People thought she was waiting to be rescued, but really, she was just becoming who she was meant to be.
